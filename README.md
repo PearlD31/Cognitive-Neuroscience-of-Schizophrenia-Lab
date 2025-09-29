@@ -1,1 +1,1 @@
-# Cognitive-Neuroscience-of-Schizoohrenia-Lab
+# Cognitive-Neuroscience-of-Schizophrenia-Lab
